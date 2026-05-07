@@ -1,2 +1,2 @@
 # Luckywinning
-Verify your account to win your free gifts instanly
+Verify your account to be one of the lucky winner's to participate on free giveaway prizes 
